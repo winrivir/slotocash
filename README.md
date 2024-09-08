@@ -1,3 +1,13 @@
+# [CLICK HERE TO JOIN SLOTOCASH](https://deckaffiliates.com/c/470889)
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+
 # Slotocash: Discover the Thrill of Online Gaming
 
 Slotocash is an online casino that offers a diverse selection of games. It features slot machines, table games, video pokers, and specialty games, all crafted to deliver entertainment right to your fingertips. Whether you're at home or on the go, Slotocash provides a platform to experience the thrill of Vegas from any location.
